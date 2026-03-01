@@ -1,2 +1,2 @@
 # activistica
-ускорение мобильного интернета
+we are free
