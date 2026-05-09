@@ -1,2 +1,0 @@
-# activistica
-we are free
